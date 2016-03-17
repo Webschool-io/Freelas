@@ -1,3 +1,3 @@
 ## Curriculum Lattes
 
-Informe o link abaixo do seu LinkedIn - Email - Telefone e Github.
+Informe o link abaixo do seu LinkedIn - Email - Telegram e Github.
